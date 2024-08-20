@@ -1,7 +1,7 @@
 <i><ins>maybe it's a blessing in disguise...</ins></i>
 <br/><br/>
 <div id="header" align="center">
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/44HQh6K/035866ac74d827ad44f00f7aa8f94814.jpg" alt="035866ac74d827ad44f00f7aa8f94814" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/LxZVDpc/image-2024-08-20-171430627.png" alt="image-2024-08-20-171430627" border="0"></a>
 </div>
 <br/><br/>
 <p align="center">
@@ -39,7 +39,7 @@ EXTREMELY apathetic and uncaring, may be considered problematic (again, u don't 
 
 ---
 
-┊ ⋆ ┊ . ┊ ┊ where to find ghoolz!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/rekiian) . [rentry](https://rentry.co/sugetos) ㅤㅤ🕷ㅤㅤ rekiian on discord
+┊ ⋆ ┊ . ┊ ┊ where to find ghoolz!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/rekiian) . [rentry](https://rentry.co/sugetos) ㅤㅤ🕷ㅤㅤ ghoolze on discord
 <p align="right">
 </br>
 <i><ins>...i see my reflection in your eyes</ins></i>
