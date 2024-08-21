@@ -18,28 +18,27 @@
 <p align="center">
     <a href="https://ibb.co/87qYBzy"><img src="https://i.ibb.co/87qYBzy/image-2024-07-31-161011259.png" alt="image-2024-07-31-161011259" border="0" width=50 height=25></a> 
     <a href="https://imgbb.com/"><img src="https://i.ibb.co/TKSqmYK/39af0dfcc76d1b6d16dcb506be2af542.jpg" alt="39af0dfcc76d1b6d16dcb506be2af542" border="0" width=50 height=25></a>
+<br/><br/><br/>
+dni's are lame, and i don't expect everybody in one category to fit the same criteria, so free blocking!
+  just have common sense and don't be a fucken weirdo and we'll be fine
+<br/><br/>
+  ——
+<br/><br/>
+ <ins> i have a lot of interests, some more or less, but in no specific order: </ins> <br/> my hero academia, demon slayer, jujutsu kaisen, sk8 the infinity, a silent voice, fairytail, bungo stray dogs, school bus graveyard, a date with death, honkai star rail, FNAF, bendy and the ink machine, dead plate, minecraft (im not a pedo trust), sally face, smii7y (the usual guys that record w him aswell), psychology, reading, writing, drawing, shifting
+<br/><br/>
+  ——
+<br/><br/>
+  feel free to block/hide me if you don't like anything i do! i'd rather not talk with you if you hate my interests anyway
+<br/><br/>
+  ——
+<br/><br/>
+  some things i think are worth noting about me is i can be <ins>extremely</ins> apathetic about any and everything which can easily come off as problematic, please be aware of that before interacting with me!! i'm atuistic (diagnosed), and not very open about my personal life and feeligns
 </p>
-</br> 
-ㅤㅤㅤㅤㅤ ㅤ   DNI : 
 </br>
-chronically online people (i cannot stand u, u will be blocked w/o a second thought) </br>
-typing quirks (hard to read and annoying) </br> 
-u hate on LEGAL ships (age gap, rare pairs, etc) </br>
-people who self diagnose (idgaf, u are WEIRD!!! dni)
-</br>
-<p align="right">
-BYI :  ㅤㅤㅤㅤㅤ ㅤ    
-</br>
-easily given the ick, but other then that mostly chill </br>
-often switches in personality and identity (no clue wtf it is, so pls be patient w it) </br>
-loves rair pairs, or "weird" ships (u don't have to int of u don't like that) </br>
-EXTREMELY apathetic and uncaring, may be considered problematic (again, u don't have to int)
-</p>
-</br></br>
 
 ---
 
 ┊ ⋆ ┊ . ┊ ┊ where to find ghoolz!!ㅤㅤ[pronouns](https://pronouns.page/@c4ly) . [spacehey](https://spacehey.com/rekiian) . [rentry](https://rentry.co/sugetos) ㅤㅤ🕷ㅤㅤ ghoolze on discord
 <p align="right">
-</br>
+</br></br>
 <i><ins>...i see my reflection in your eyes</ins></i>
