@@ -23,7 +23,7 @@
 <br/><br/>
   ——
 <br/><br/>
- for more read the rentry!!
+ i recommend reading rentry b4 interacting, but not necessary! do however <ins>read before freinding!!</ins>
 </p>
 </br>
 
