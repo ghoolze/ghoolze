@@ -23,6 +23,10 @@
 <br/><br/>
   ——
 <br/><br/>
+  pls don't cover me! i will move or perm hide if it's continuous ⸝⸝ do not <i>blatantly</i> copy my skins, inspo is okay!
+<br/><br/>
+    ——
+<br/><br/>
  i recommend reading rentry b4 interacting, but not necessary! do however <ins>read before freinding!!</ins>
 </p>
 </br>
