@@ -32,7 +32,7 @@ dni's are lame, and i don't expect everybody in one category to fit the same cri
 <br/><br/>
   ——
 <br/><br/>
-  some things i think are worth noting about me is i can be <ins>extremely</ins> apathetic about any and everything which can easily come off as problematic, please be aware of that before interacting with me!! i'm atuistic (diagnosed), and not very open about my personal life and feeligns
+  some things i think are worth noting about me is i can be <ins>extremely</ins> apathetic about any and everything which can easily come off as problematic, please be aware of that before interacting with me!! i'm autistic (diagnosed), and not very open about my personal life and feeligns
 </p>
 </br>
 
