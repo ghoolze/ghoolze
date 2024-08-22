@@ -29,7 +29,7 @@
 
 ---
 
-┊ ⋆ ┊ . ┊ ┊ where to find ghoolz!!ㅤㅤ[pronouns](https://pronouns.page/@ghoolz) .  [rentry](https://rentry.co/ghoolz) ㅤㅤ🕷ㅤㅤ ghoolze on discord
+┊ ⋆ ┊ . ┊ ┊ where to find ghoolz!!ㅤㅤ  [pronouns](https://pronouns.page/@ghoolz) .  [rentry](https://rentry.co/ghoolz) ㅤㅤ🕷ㅤㅤ ghoolze on discord
 <p align="right">
 </br></br>
 <i><ins>...i see my reflection in your eyes</ins></i>
