@@ -23,6 +23,7 @@
 <br/><br/>
   ——
 <br/><br/>
+  <b>only applies to non-friends btw</b><br/>
   pls don't cover me! i will move or perm hide if it's continuous ⸝⸝ do not <i>blatantly</i> copy my skins, inspo is okay!
 <br/><br/>
     ——
