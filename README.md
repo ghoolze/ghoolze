@@ -1,12 +1,5 @@
 <i><ins>maybe it's a blessing in disguise...</ins></i>
 <br/><br/>
-<div id="header" align="center">
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/LxZVDpc/image-2024-08-20-171430627.png" alt="image-2024-08-20-171430627" border="0"></a>
-</div>
-<br/><br/>
-<p align="center">
-  <i>loading . . . complete!</i>
-  </br></br> </p>
   
   ---
 
