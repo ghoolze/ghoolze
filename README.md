@@ -14,7 +14,9 @@ ghoolz 、、sam<i><s>my</s><i>
 <br>
 any pronouns <a href="https://i.imgur.com/tngdubn.gif"><img src="https://i.imgur.com/tngdubn.gif" alt="https://i.imgur.com/tngdubn.gif" border="0" width= height=></a> or ask ;; fluctuating !
 <br><br>
-  <p align="left">——————————— . . bisexual ◟ aroace-spec ◟ genderhaze</p>
+  <p align="left">. .  ——————————— : bisexual ◟ aroace-spec ◟ genderhaze</p>
   <br><br><br>
   <p align="center">
-  ts ain't working, im about to crash out11!1!!111!
+  </p>
+  <a href="https://i.imgur.com/enTyi2f.gif"><img src="https://i.imgur.com/enTyi2f.gif" alt="https://i.imgur.com/enTyi2f.gif" border="0" width= height=></a>
+  <a href="https://i.imgur.com/Yd60vZZ.gif"><img src="https://i.imgur.com/Yd60vZZ.gif" alt="https://i.imgur.com/Yd60vZZ.gif" border="0' width= height="></a>
