@@ -1,5 +1,5 @@
 <p align="left">
-  <i>" whether a person's like is worth anything or not... is not for you to decide! " </i>
+  <i>" whether a person's life is worth anything or not... is not for you to decide! " </i>
 </p>
 <br>
 <div id="header" align="center">
