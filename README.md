@@ -3,7 +3,7 @@
 </p>
 <br>
 <div id="header" align="center">
-<a href="https://github.com/ghoolze"><img src="https://i.imgur.com/sENjFAZ.png" alt="https://i.imgur.com/sENjFAZ.png" border="0" width=720 height=360></a> 
+<a href="https://github.com/ghoolze"><img src="https://i.imgur.com/9BJfWJx.jpeg" alt="https://i.imgur.com/9BJfWJx.jpeg" border="0" width= height=></a> 
 </p>
 
 ---
