@@ -1,9 +1,9 @@
 <p align="left">
-  <i>" whether a person's life is worth anything or not... is not for you to decide! " </i>
+  <i>" hey izuku... can i still catch up to you? " </i>
 </p>
 <br>
 <div id="header" align="center">
-<a href="https://github.com/ghoolze"><img src="https://i.imgur.com/6K0AVC7.png" alt="ihttps://i.imgur.com/6K0AVC7.png" border="0" width= height=></a> 
+<a href="https://github.com/ghoolze"><img src="https://i.imgur.com/sENjFAZ.png" alt="https://i.imgur.com/sENjFAZ.png" border="0" width=720 height=360></a> 
 </p>
 
 ---
