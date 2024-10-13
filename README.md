@@ -9,7 +9,7 @@
 ---
 
 <p align="center">
-ghoolz 、、s a m <i><s>m y</s><i>
+ghoolz 、、b l a <i><s>k e</s><i>
 </p>
 <br>
 any pronouns <a href="https://github.com/ghoolze"><img src="https://i.imgur.com/tngdubn.gif" alt="https://i.imgur.com/tngdubn.gif" border="0" width= height=></a> or ask ;; fluctuating !
